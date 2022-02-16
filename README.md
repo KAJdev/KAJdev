@@ -3,7 +3,7 @@
 
 🔗 https://dsc.gg/ 
 
-📂 https://tixte.com/ 
+🤖 https://modulus.gg/
 
 🔒 https://safelink.gg/
 
